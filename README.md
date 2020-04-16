@@ -2,7 +2,7 @@
 
 Lieber Besucher meines Repositoriums!
 
-Hier finden Sie das Notenmaterial und drei Texte zu folgenden Stücken für zwei bis vier Celli:
+Hier finden Sie das Notenmaterial und drei Texte zu folgenden Stücken für 2-4 Celli:
 
 - DUOS: 40 Cello-Duos 
 - TRIOS: Morgen- und Abendlieder, Mittwochs bei Nordi (5 Schrammel-Lieder), Lieder der Ju-Li-Prachtenten
