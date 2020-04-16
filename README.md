@@ -4,16 +4,16 @@ Lieber Besucher meines Repositoriums!
 
 Hier finden Sie das Notenmaterial und drei Texte zu folgenden Stücken für zwei bis vier Celli:
 DUOS:
- > 40 Cello-Duos
+ - 40 Cello-Duos
 TRIOS:  
- > Morgen- und Abendlieder
- > Mittwochs bei Nordi
+ - Morgen- und Abendlieder
+ - Mittwochs bei Nordi
    5 Schrammel-Lieder
- > Lieder der Ju-Li-Prachtenten
+ - Lieder der Ju-Li-Prachtenten
 QUARTETTE:
- > Mondkatzen und schwarzer Hahn 
+ - Mondkatzen und schwarzer Hahn 
    5 Alte-Zeit-Lieder 
- > Lieder von wunderlichen kleinen Wesen und fröhlichen Zechern 
+ - Lieder von wunderlichen kleinen Wesen und fröhlichen Zechern 
    3 Celloquartette
   
 Sie können die Noten kostenlos herunterladen.  
