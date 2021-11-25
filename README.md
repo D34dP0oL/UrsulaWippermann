@@ -5,7 +5,7 @@ Lieber Besucher meines Repositoriums!
 Hier finden Sie das Notenmaterial und drei Texte zu folgenden Stücken für 2-4 Celli:
 
 - DUOS: 40 Cello-Duos, Lieder aus dem wilden Garten 
-- TRIOS: Morgen- und Abendlieder, Mittwochs bei Nordi (5 Schrammel-Lieder), Lieder der Ju-Li-Prachtenten
+- TRIOS: Morgen- und Abendlieder, Mittwochs bei Nordi (5 Schrammel-Lieder), Lieder der Ju-Li-Prachtenten (18 kleine Cello-Trios) mit "Neue Lieder der Ju-Li-Prachtenten"
 - QUARTETTE: Mondkatzen und schwarzer Hahn (5 Alte-Zeit-Lieder), Lieder von wunderlichen kleinen Wesen und fröhlichen Zechern
   
 Sie können die Noten kostenlos herunterladen.  
